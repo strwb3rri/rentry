@@ -1,7 +1,4 @@
 # rentry
 
-// omgg i finally did it //
+// rmking my rentry again soon uhhh hi //
 
-https://rentry.co/strwb3rri2
-
-this was a template by "Jards REAL Boyfriend ⭕️ (fern/elliot)" on Pinterest!
